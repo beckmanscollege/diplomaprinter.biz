@@ -1,1 +1,0 @@
-# diplomaprinter.biz
